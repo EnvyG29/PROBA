@@ -1,0 +1,9 @@
+fdgdfggfdgfh
+dfghdf
+ghf
+copyright()fdh
+fdgh
+fdh
+fd
+fdg
+h
